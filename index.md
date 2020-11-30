@@ -1,7 +1,7 @@
 OBSESSIVE TESTER UPDATED MAY 5, 2020
 The Absolute Best Moisturizers for Dry Faces
 By the Cut and Kathleen Hou
-
+![Branching](vl.jfif)
 Photo: Heather Hazzan
 Despite your best efforts (humidifiers, masks, more water, less wine), maintaining a supple complexion can be a challenge. But finding the right moisturizer for your skin type makes a big difference. After much trial and error, here are the 17 best face moisturizers for all skin types.
 
